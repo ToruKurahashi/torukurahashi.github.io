@@ -1,1 +1,0 @@
-# torukurahashi.github.io
